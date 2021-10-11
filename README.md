@@ -8,10 +8,16 @@ Sándor Máté:
               
               - facebook/messenger Sándor Máté (kék téli kabát)
 
-Szabó Martin:
+Szabó Martin: 
+              - +36305099974
+              - szmartin0106@gmail.com
+              - facebook / messenger Szabó Martin
 
 Balázs Tamás:
 
 Ádám Róbert:
+            - +36308995304
+            - roobi5960@icloud.com
+            - facebook / messenger Ádám Robi
 
 Bordás Dávid:
